@@ -156,7 +156,7 @@ Untuk menambahkan daftar, menemukan kesalahan tautan, typo, atau memperbaharui d
 
 ### Hreatif
 
-[Website](https://hreatif.com/) | [Instagram](https://www.instagram.com/hreatif/) | [Youtube](https://www.youtube.com/channel/UCMAlBihtI69SS0ShlR6GtWA)
+[Website](https://hreatif.com/) | [Instagram](https://www.instagram.com/hreatif/) | [Youtube](https://www.youtube.com/channel/UCMAlBihtI69SS0ShlR6GtWA) | [TIKTOK](https://www.tiktok.com/@hreatif)
 
 ## I<a name="i"></a>
 
